@@ -1,4 +1,4 @@
-### Selamat Menempuh Hidup Baru ke Zamroni Mas'ud dan Istri
+### Selamat Menempuh Hidup Baru ke Zamroni Mas'ud dan Istri Tercinta
 
 
 
@@ -9,7 +9,7 @@ Sudah semestinya kami sebagai teman akrab yang peduli, turut melengkapi kebahagi
 
 “Ini adalah awal perjalan cinta kalian yang sesungguhnya, membangun cinta dalam satu atap berdua mengarungi samudra kehidupan. Semoga jadi keluarga yang sejahtera, penuh puas cita dan dianugrahi keturunan yang mampu membanggakan ke-2 orang tua, Amin. selamat menempuh hidup baru.”
 
-_bold_ semoga sukses selalu mas brow.
+_semoga sukses selalu mas brow_
 
 
 
@@ -18,3 +18,4 @@ _bold_ semoga sukses selalu mas brow.
 
 #### Salam dari :
 #### Ari Kiswanto dan Nur Fadilah ####
+🙏 🙏
